@@ -14,11 +14,22 @@ The following is from Baidu Translation:                </br>
 `Human cloning Research Presentation`                    </br>
 `人种科隆研究报告`                                        </br>
 
+>
+>
+>
+>
+>
+>
+>
+>
+>
+>
 
 
 The meaning has completely changed                      </br>
 意思完全变了                                              </br>
-
+Wrong translation of meaning                             </br>
+意思完全翻译错了                                          </br>
 
 
 
