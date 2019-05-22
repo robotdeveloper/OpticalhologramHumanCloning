@@ -14,16 +14,17 @@ The following is from Baidu Translation:                </br>
 `Human cloning Research Presentation`                    </br>
 `人种科隆研究报告`                                        </br>
 
->光学对于人体的影响                                      </br>
->
->光的辐射时间长短及强弱影响                               </br>
->
->
->
+>The influence of optics on human body                                </br>
+>光学对于人体的影响                                                     </br>
+>The length of radiation time and the influence of intensity of light </br>
+>光的辐射时间长短及强弱影响                                             </br>
 >
 >
 >
 >
+>
+>
+
 
 
 The meaning has completely changed                      </br>
