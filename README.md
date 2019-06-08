@@ -25,10 +25,11 @@ The following is from Baidu Translation:                </br>
 >
 >
 
-`Government intervention`
-`政府干涉`
+`Government intervention`　　　　　　　　　　　　　　　　　</br>
+`政府干涉`                                              </br>
 
-
+`Government action`　　　　　　　　　　　　　　　　　　　　</br>
+`政府行为`                                              </br>
 
 
 The meaning has completely changed                      </br>
