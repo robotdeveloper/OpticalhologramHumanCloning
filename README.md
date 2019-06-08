@@ -12,7 +12,7 @@ The following is from Baidu Translation:                </br>
 人类克隆研究报告                                          </br>
 
 `Human cloning Research Presentation`                    </br>
-`人种科隆研究报告`                                        </br>
+`人种克隆研究报告`                                        </br>
 
 >The influence of optics on human body                                </br>
 >光学对于人体的影响                                                     </br>
@@ -24,6 +24,10 @@ The following is from Baidu Translation:                </br>
 >
 >
 >
+
+`Government intervention`
+`政府干涉`
+
 
 
 
